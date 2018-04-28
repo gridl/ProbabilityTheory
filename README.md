@@ -1,3 +1,3 @@
 # ProbabilityTheory
 
-![](https://cdn-images-1.medium.com/max/1440/1*VoNxmH8kRLKlNI_uuEoBvw.jpeg)
+![](https://i.ebayimg.com/00/s/NzIzWDEwMjQ=/z/Sa4AAOSwBLlVSjXC/$_86.JPG)
